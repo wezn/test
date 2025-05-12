@@ -1,1 +1,1 @@
-# https://182exe.xyz
+# https://wezn.github.io/test
